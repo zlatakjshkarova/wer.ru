@@ -1,0 +1,2 @@
+# wer.ru
+qaz
